@@ -1,0 +1,2 @@
+# HacktoberRecipes
+Recipes for developer
