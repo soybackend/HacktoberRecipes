@@ -13,7 +13,7 @@
 	1 sobre de sazón con azafrán
 	Sal al gusto
 
-##Preparación
+## Preparación
 
 Coloca el aceite en una olla grande a fuego bajo.
 Sofríe los tres pimentones picados, el ajo y la cebolla cabezona y revuelve hasta que tomen un color dorado.
