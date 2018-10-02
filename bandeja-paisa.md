@@ -1,4 +1,5 @@
-Preparación
+#Preparación
+
 Remojar los frijoles en agua hasta cubrirlos la noche anterior a su preparación; cocinarlos en esa misma agua, con la mitad del aceite. Cuando estén blandos, agregarle la sal.
 
 Mientras tanto, sofríe la carne molida en aceite a fuego medio alto añadiendo la mitad del hogao y revuélvelo bien. fríe los chicharrones hasta que queden tostados o al punto deseado.
