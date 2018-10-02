@@ -1,4 +1,19 @@
-#Preparación
+## Ingredientes
+
+    3 tazas de frijoles cargamanto o rojos grandes
+    2 cucharadas de aceite
+    2 lbs de carne molida 1 taza de hogao o guiso
+    2 lbs de tocino 6 huevos 6 chorizos 3 aguacates
+    1 libra de arroz
+    3 Plátanos dulces o tostones (plátanos machos) Arepa
+    4 cebollas grandes
+    4 tomates (jitomates) Aceite, al gusto
+    2 lbs de carne de pulpa molida
+    3 tazas de harina de maíz precocida (blanca o amarilla) para arepas
+    2 tazas de agua tibia
+    Sal al gusto
+
+## Preparación
 
 Remojar los frijoles en agua hasta cubrirlos la noche anterior a su preparación; cocinarlos en esa misma agua, con la mitad del aceite. Cuando estén blandos, agregarle la sal.
 
