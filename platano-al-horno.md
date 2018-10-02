@@ -1,4 +1,5 @@
 # Platano al Horno
+![platano_al_horno](https://www.laylita.com/recetas/wp-content/uploads/Platanos-maduros-asados-con-queso-Laylita.com_.jpg)
 ### Descripción:
 Platano maduro al horno con queso, bocadillo y crema de leche.
 
